@@ -16,8 +16,7 @@ Family & Immigration Law – Washington, DC
   https://www.instagram.com/lopezlawfirmdc/
 
 - 🎵 TikTok  
-  https://www.tiktok.com/@lopezlawfirmdc
-
+https://www.tiktok.com/@dclopezlawfirm
 - ▶️ YouTube  
   https://www.youtube.com/@LopezLawFirm
 
@@ -25,7 +24,7 @@ Family & Immigration Law – Washington, DC
   https://www.pinterest.com/lopezlawdc
 
 - 💼 LinkedIn  
-  https://www.linkedin.com/in/carlos-lopez-llf/
+  https://www.linkedin.com/company/lopez-law-firm-dc/?viewAsMember=true
 
 - 🔗 Linktree  
   https://linktr.ee/lopezlawfirmdc
