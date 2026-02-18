@@ -18,7 +18,7 @@ Family & Immigration Law – Washington, DC
 - 🎵 TikTok  
 https://www.tiktok.com/@dclopezlawfirm
 - ▶️ YouTube  
-  https://www.youtube.com/@LopezLawFirm
+https://www.youtube.com/@LopezLawFirmDC
 
 - 📌 Pinterest  
   https://www.pinterest.com/lopezlawdc
